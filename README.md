@@ -1,3 +1,3 @@
 # Istic-Android-ejercicios
 
-villegas octavio
+alejandra sosa
